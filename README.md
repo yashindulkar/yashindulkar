@@ -12,5 +12,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...[Youtube Channel] (https://www.youtube.com/user/yashindulkar) 
                           [Linkedin]  (https://www.linkedin.com/in/yashindulkar)
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... I have a Dog
--->
+- ⚡ Fun fact: ... I have a Dog 
